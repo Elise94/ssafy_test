@@ -12,7 +12,7 @@
 듬직하다. 깊게 본다. 주위를 잘 살핀다.
 
 연말 계획 : 신년을 준비하며 한해를 정리.
----?%&position=bottom&color=##8A2BE2
+---?%&position=bottom&color=#8A2BE2
 # 오무라이스의 대변자
 박종찬
 ---
