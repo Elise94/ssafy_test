@@ -5,7 +5,7 @@
 우직하다. 빠르다. 독특하다.
 
 연말 계획 : 부산 여행!
----?ppt_image/effnacnz_400x400.jpg%&position=bottom&color=#b7410e
+---?ppt_image/effnacnz_400x400.jpg%&position=bottom&color=#b0000e
 # 오무라이스의 큰형
 김범현
 ---
